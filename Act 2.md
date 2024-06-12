@@ -41,5 +41,17 @@ Cliffhanger on nearby music & Spark-Lana tension
 
 Synopsis: Kris has Figure trauma, Spark potentially wants to murder Lana, Suzie is just chilling cause she survived
 
+##### Chapter 5 - Jeff's Shop
+Door 52 Jeff's Shop
+Lana talks with El Goblino and finds out some stuff
+The coins Kris and Suzie saved up 
+Suzie buys the lock pick and crucifix, Kris buys the Skull Key and gives some tips to Jeff cause she feels like it
+They decide to rest for a while and gain more insight to the hotel as they talk to El Goblino
 
+Synopsis: Gang is uneasy, tensions are rising
+##### Chapter 6 - Winding Down
+Door 52-57
+Kris suggests that they all calm down and stay in one room for now to just process everything (she's still in the Figure and Seek aftershock) and Spark helps convince everyone
+Spark notices Lana's 
 
+Synopsis: We get an insight on their behaviors, Suzie as prudent as ever (disregarding the present) & childish, Lana still reckless, but feeling weaker and weaker by the minute. Spark descending and hanging onto dear sanity by Kris, and Kris being shocked by everything, which causes her to be more irritable and manipulative
